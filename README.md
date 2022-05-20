@@ -1,1 +1,1 @@
-# Trajet-ria-de-uma-bola-de-Voleibol-FundFisica-
+# Trajetoria-de-uma-bola-de-Voleibol-FundFisica-
